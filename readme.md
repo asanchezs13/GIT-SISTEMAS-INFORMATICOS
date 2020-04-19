@@ -1,1 +1,1 @@
-#  Más sabe el diablo por viejo que por diablo.
+Más vale pájaro en mano que ciento volando.
